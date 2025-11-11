@@ -141,4 +141,4 @@ Differences between the replicated and published values were minor and **economi
 
 **Vikalp Thukral**
 MFE Candidate, UCLA Anderson School of Management
-Email: [vikalp.thukral@anderson.ucla.edu](mailto:vikalp.thukral@anderson.ucla.edu)
+Email: [vikalp.thukral.2025@anderson.ucla.edu](mailto:vikalp.thukral.2025@anderson.ucla.edu)
